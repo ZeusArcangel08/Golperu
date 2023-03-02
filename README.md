@@ -1,2 +1,0 @@
-# Golperu
-Público
